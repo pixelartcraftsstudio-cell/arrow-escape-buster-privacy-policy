@@ -70,8 +70,7 @@ Your continued use of the game after changes are made means you accept the updat
 
 If you have any questions about this Privacy Policy, please contact us:
 
-[Your Studio Name]
-Email: [your email address]
-Website: [your website, if any]
+pixelartcraftsstudio
+Email: pixelartcraftsstudio@gmail.com
 
 This is the full Privacy Policy for Arrow Escape Buster.
